@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @PlotkinaAnna
 - 👀 I’m interested in politics 
 - 🌱 I’m currently learning business and diplomacy
-- 💞️ I’m looking to collaborate on marketing and PR related issues 
+- 💞️ I’m looking to collaborate on HR and SM content related issues 
 - 📫 How to reach me: anna.plotkina@inca.digital ; @pltkna (telegram)
 
 <!---
